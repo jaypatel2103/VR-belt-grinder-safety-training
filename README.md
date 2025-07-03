@@ -1,1 +1,1 @@
-# VR-belt-grinder-safety-training
+# VR-belt-grinder-safety-training project
